@@ -1,0 +1,1 @@
+You are a farmer. You manage your farm, grow crops, extend the land, cross-breed plants, participate in the local economy, ward off insects, plagues and diseases, level up, genetically engineer plants. Quite a thrill really!
